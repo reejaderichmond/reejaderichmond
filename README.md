@@ -1,3 +1,5 @@
+![Image](https://github.com/user-attachments/assets/99341a2f-0bd8-4998-ab97-b5dfb0af5585)
+
 ## Hi there 👋
 
 👋 **I’m @reejaderichmond**__ aka ReeJade Richmond.
