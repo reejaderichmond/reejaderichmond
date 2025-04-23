@@ -17,7 +17,7 @@
 😄 **Pronouns:** She/Her
 
 ⚡ **Fun fact:**
-I was diagnosed with kidney disease in my early 20s and spent years on dialysis while navigating law school. I thought law was the path—until I realized I was more obsessed with building systems than debating case law.
+I was diagnosed with kidney disease in my late 20s and spent years on dialysis while navigating law school. I thought law was the path—until I realized I was more obsessed with building systems than debating case law.
 So I pivoted. Taught myself how to build websites. Fell in love with data. Started applying business strategy through tech.
 
 _Today, I use my corporate career in strategy, analytics, and product to teach working professionals how to pivot into tech roles—without fluff, without confusion, and without losing who they are._****
